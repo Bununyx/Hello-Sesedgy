@@ -1,2 +1,3 @@
 # Hello-Sesedgy
-Just learning stuff, that sort of thing
+Hi there, bro
+Let's get rollin' in HoTS tonight!
